@@ -1,1 +1,1 @@
-# Exporing-Why-Civil-Resistance-Works
+# Exporing Why Civil Resistance Works
